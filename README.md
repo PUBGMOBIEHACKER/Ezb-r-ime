@@ -1,2 +1,2 @@
 # Ezb-r-ime
-Dırri
+Dırri Marhaba Naber orospu
